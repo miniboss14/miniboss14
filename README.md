@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 國立中山大學
-財務管理學習
+財務管理學系
 115級
 B114030008
 黃泳傑
